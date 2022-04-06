@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Oguz. I will take notes on my work.
